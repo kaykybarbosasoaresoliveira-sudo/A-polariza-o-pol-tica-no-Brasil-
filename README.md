@@ -1,1 +1,1 @@
-# A-polariza-o-pol-tica-no-Brasil-
+A polarização política no Brasil 
